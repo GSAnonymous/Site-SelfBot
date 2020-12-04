@@ -1,3 +1,2 @@
 # Anonymous Selfbot 
- - Dev: ♡**xanthe**♡, fweak
-
+ - Dev: ♡**Anonymous**♡, Moura
